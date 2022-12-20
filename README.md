@@ -1,0 +1,1 @@
+# Kelimeden-Index-Cikarma
